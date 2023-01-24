@@ -1,1 +1,1 @@
-# Antenor-Orrego
+# Antenor Orrego Private University
